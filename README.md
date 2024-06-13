@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some light open source projects
 - 📫 How to reach me @Machoo0224 (tg)
 - 😄 Pronouns: he/his
-- ⚡ Fun fact: i love puzzles, penspinning. i loke colors navy blue n white. 
+- ⚡ Fun fact: i love puzzles, penspinning. i love colors navy blue n white. 
 
 <!---
 MukhammadyusufIshanov/MukhammadyusufIshanov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
